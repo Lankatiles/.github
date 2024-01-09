@@ -1,4 +1,4 @@
-# Lankatiles
+# Lankatiles, Lanka Walltiles, Swisstek Ceylon, Swisstek Aluminium, Coloma
 
 ![Lankatiles Logo](https://www.lankatiles.com/wp-content/uploads/2022/06/lanka-tiles-logo.svg)
 
